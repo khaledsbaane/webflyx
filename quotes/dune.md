@@ -5,3 +5,4 @@
 "May thy knife chip and shatter"
 "A Great Man Doesn	 Seek To Lead. Hes Called To It."
 "The spice must flow."
+"Fear is the mind-killer."
